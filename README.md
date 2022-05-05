@@ -9,12 +9,3 @@ there's a lot of languages and I probably missed some. Please, make pulls reques
 
 ### Discord server : 
 [SpaceWatch](https://discord.gg/spacewatch)
-[SpaceWatch](https://discord.gg/spacewatch)
-[SpaceWatch](https://discord.gg/spacewatch)
-[SpaceWatch](https://discord.gg/spacewatch)
-[SpaceWatch](https://discord.gg/spacewatch)
-[SpaceWatch](https://discord.gg/spacewatch)
-[SpaceWatch](https://discord.gg/spacewatch)
-[SpaceWatch](https://discord.gg/spacewatch)
-[SpaceWatch](https://discord.gg/spacewatch)
-[SpaceWatch](https://discord.gg/spacewatch)
